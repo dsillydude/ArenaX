@@ -65,4 +65,4 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 ## Contact Us
 If you have any questions or suggestions about this Privacy Policy, please contact us:
 
-**Email:** theivanmichael3@gmail.com
+**Email:** berry66a@gmail.com
